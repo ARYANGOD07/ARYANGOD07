@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Aaryan Godboley @ARYANGOD07
 - 👀 I’m interested in codings
-- 🌱 I’m currently learning Land surveying 
+- 🌱 I’m currently learning Land surveying at part job
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... ig @aaryan.godboley
 
